@@ -1,0 +1,2 @@
+# Richard
+kazhka sulauzhau
