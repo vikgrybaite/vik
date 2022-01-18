@@ -4,3 +4,7 @@ kazhka sulauzhau
 and
 123
 sfdgdfg
+vienas
+du
+tris
+keturi
